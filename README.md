@@ -6,6 +6,7 @@
 - 📫 If you're interested to connect, link up with me at https://www.linkedin.com/in/howeisin or drop me an email at datakunoichi@yahoo.com
 
 ## 🧭 My Quest So Far
+- 📗 Educator at heart
 - 🎓 Studying for my **Master's at Georgia Institute of Technology**, learning from brilliant minds and challenging my own.
 - 🤖 Tinkering with **AI models**, crafting apps, and dreaming up mini experiments.
 - 🛠️ Building side projects — some work, some don't, but every project leaves behind a little spark of learning.
