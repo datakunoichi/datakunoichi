@@ -26,7 +26,7 @@ If you love dreaming, building, and wandering the tech frontier too,
 feel free to reach out — every good adventure needs companions! 🧙‍♂️✨
 
 ## 👍🏼Lifestyle Inspirational Gurus
-- I love listening and following to podcasts, vodcasts and books by Adam Grant, Vinh Giang, Steven Bartlet, Gary Sinise
+- I love following Adam Grant, Vinh Giang, Steven Bartlet and Gary Sinise who have a positive outlook on life issues.
 
 - 📫 datakunoichi@yahoo.com
 - 🐦 https://www.linkedin.com/in/howeisin
